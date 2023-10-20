@@ -1,2 +1,2 @@
 # chandra
-i need to learn git
+i need to liiabngvbnbbj earn git
